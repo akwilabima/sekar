@@ -1,2 +1,0 @@
-# sekar
-Wow amazing
